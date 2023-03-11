@@ -1,2 +1,2 @@
 # nft-type
-J
+Just a perfect job done better🤭
